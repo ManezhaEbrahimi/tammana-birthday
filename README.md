@@ -1,2 +1,0 @@
-# tammana-birthday
-
